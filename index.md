@@ -4,7 +4,7 @@
 !(https://github.com/user-attachments/assets/d6b0af8a-5409-4da1-a1ae-7634d7521844)
 
 
-### 🚀 Aquí te dejo alunos *chistes* para ~alegrarte el dia 😆:
+### 🚀 Aquí te dejo alunos chistes para alegrarte el dia 😆:
 
 ¿Cuántos programadores se necesitan para cambiar una bombilla?
 Ninguno, ¡es un problema de hardware! 💡😅
