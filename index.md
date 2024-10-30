@@ -1,7 +1,7 @@
 
 ## *Bienvenida a mi página web para la práctica 04 de Entornos*
 
-![ ](https://github.com/user-attachments/assets/d6b0af8a-5409-4da1-a1ae-7634d7521844)
+![.](https://github.com/user-attachments/assets/d6b0af8a-5409-4da1-a1ae-7634d7521844)
 
 
 ### 🚀 Aquí te dejo alunos chistes para alegrarte el dia 😆:
