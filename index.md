@@ -5,13 +5,12 @@
 
 
 ### 🚀 Aquí te dejo alunos chistes para alegrarte el dia 😆:
-👀👀👀
+
 ¿Cuántos programadores se necesitan para cambiar una bombilla 🙃?
 Ninguno, ¡es un problema de hardware! 💡😅
-  👀👀👀
+
 ¿Por qué los programadores prefieren el oscuro para el editor de texto🤔?
 Porque la luz atrae a los bugs. 🪲😆
-    👀👀👀
+
 ¿Por qué los bits nunca se sienten solos?
 Porque siempre están en grupos de 8. 💾
-        👀👀👀
